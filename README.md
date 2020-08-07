@@ -12,4 +12,5 @@
 - ⚡ Fun fact:被同一个女的甩了三次。
 - :star:maxim:We just live once,so make it fantastic.
 - :musical_note:interest:all kinds of music&hiphop&中文歌才是最屌的
+- 🕺Prefer:林宥嘉/PO8/欧阳娜娜/程潇/Bazzi/张国荣/刘德华/许嵩/MiniG迷你机/OneDirection/Bigbang.....etc.
 
